@@ -1,7 +1,12 @@
 
 ## [UCF Celeste](https://thecelestehotel.com/)
 
-> More to Come
+[Sarah Ehmke](mailto:Sarah.Ehmke@marriott.com)  
+Director of Sales  
+4105 North Alafaya Trail  
+Orlando, FL 32826  
+P:407.207.4700 x5006
+
 
 ## [The Wellvue](https://thewellvue.com/)
 
